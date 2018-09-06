@@ -1,1 +1,1 @@
-# surjitsingh.github.io-resume
+# surjitsingh.github.io
